@@ -3,7 +3,7 @@ Sigma work
 
 
 I'm trying to create an HTML file
-you know
+you kn
 but fuck it!!!!!
 
 
